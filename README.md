@@ -34,4 +34,3 @@ Login Details for admin : admin/123
 
 If You Face With Any Problem Feel Free and Ask Me By Sending an Email
 Email: hayatzaimustafa@gmail.com
-WhatsApp: 0093 0767830043 / 0093 789961498
